@@ -1,1 +1,1 @@
-Esta es mi página sobre la trayectoria banda colombiana Morat
+Esta es mi página sobre la trayectoria de la banda colombiana Morat
